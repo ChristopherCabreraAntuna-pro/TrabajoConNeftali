@@ -1,2 +1,2 @@
 # TrabajoConNeftali
-Tontos muy tontos
+Dos tontos muy tontos
